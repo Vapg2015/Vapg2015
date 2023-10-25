@@ -1,4 +1,4 @@
-# Iaê! Eu sou o Vitor Galvão! 
+# Iaê! Eu sou o Vitor Galvão 👍🏾 
 
 ### Estatísticas 📊
 <div class="stats-cards" align="center">
